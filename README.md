@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @stenio zimmer  
+- 👀  I'm interested in contributing to communication and administration work.
+- 🌱 I’m currently learning adminsitration and sound.
+- 📫 How to reach me @Stenio_zimmer on IG. 
